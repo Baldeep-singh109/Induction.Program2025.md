@@ -1,5 +1,3 @@
-# Day 1
-## 8:30 to 9:
 # DAY-1 (31 July 2025)
 
 - Hi, myself Baldeep Singh pursuing first year B.Tech in Computer Science and Engineering, I was excited that how will my first day of college will go.
