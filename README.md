@@ -57,8 +57,8 @@ There is a conversation among our weaknesses and strenghths.
 
 ---
 
-## ☕ Refresh & Recharge
-
+## ☕ Refresh & Recharges
+From **11:30 AM to 12:30 PM**, we had our **break time** — a chance to relax, interact with peers, and recharge for the upcoming sessions.
 
 ## 🎤 Expert Lecture
 The highlight of the day was from **12:30 PM to 2:30 PM** — an inspiring **Expert Lecture** on *"Universal Human Values - 2"*  
