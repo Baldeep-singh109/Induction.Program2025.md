@@ -5,7 +5,6 @@
 ## 📅 **DAY 1 – 31 July 2025**
 > *"The first day is the beginning of every great story."*
 
-# DAY-1 (31 July 2025)
 - Hi, myself Baldeep Singh pursuing first year B.Tech in Computer Science and Engineering, I was little excited ,nervous and curious that how will my first day of college will go.
 - A warm and inspiring welcome was given to students of B.Tech Computer Science and Engineering(CSE) and B.Tech Information Technology(IT) at Guru Nanak Dev Engineering College,Ludhiana.
 
@@ -35,18 +34,19 @@ English & Maths Proficiency Tests were conducted for all streams to assess found
 Buddy4Study team guided students on scholarship opportunities for 1st year.
 Together, we continue shaping a journey of purpose, learning, and well-being! 💫
 
-# Day 3(2 August 2025)
+## 📅 **DAY 3 – 2 August 2025**
+> *"Inspiration, interaction, and introspection – all in one."*  
 
+- **Dr. Jaswinder Singh** *(renowned for JaswinS Lab on Wheels)* brought Physics & Maths to life with **fun experiments and demonstrations**.  
+- **Dr. Priya Darshni** continued with *"Universal Human Values - 1"*, enriching young minds with purpose.  
+- **Chief Guest:** S. Gurcharan Singh Grewal *(Secretary, SGPC)* encouraged students with motivating words.  
+
+💬 Interactive discussion sessions followed, where students reflected on their **English & Maths test results**.  
 ## A day full of inspiration, interaction, and introspection for our CSE & IT freshers!
 
--  Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
--  Dr. Priya Darshni continued with “Universal Human Values - 1”, enriching young minds with clarity and purpose.
--  Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
-- Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
-
 ## Learning, laughter, and self-discovery — all rolled into one powerful day! 💫
-- As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry.
-# Day 4(4 August 2025)
+
+## 📅 **DAY 4 – 4 August 2025**
 
 ## 🌟 Morning Session
 From **9:30 AM to 10:30 AM**
@@ -72,6 +72,7 @@ conducted by **Dr. Priya Darshani Madam** in the **Auditorium**.
 Her words left a lasting impression, reminding us of the importance of values in both personal and professional life.
 
 ---
-# Day 5( August 2025)
 
-On this day there is no lecture for CSE(A). We gatheres outside the TCC Seminar Hall for making of Student Id card then we explore the college campus.
+## 📅 **DAY 5 – 5 August 2025**
+
+On this day there is no lecture for CSE(A). We gatheres outside the TCC Seminar Hall for making Student Id card then we explore the college campus.
