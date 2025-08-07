@@ -44,7 +44,7 @@ Together, we continue shaping a journey of purpose, learning, and well-being! �
 
 ## 🌟 Morning Session
 From **9:30 AM to 10:30 AM**
-The day began with an engaging **Peer-to-Peer (P2P)** session conducted by our talented college seniors.
+- The day began with an engaging **Peer-to-Peer (P2P)** session conducted by our talented college seniors.
 They introduced us to the **basics of C++ programming**, explaining concepts in a simple yet powerful manner.  
 It was not just a lecture — it was a hands-on experience that sparked curiosity and encouraged us to explore the world of coding.
 ---
