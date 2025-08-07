@@ -18,15 +18,15 @@
 - Dr.Akshay Girdhar(Dean Academics)
 - Dr.Parminder Singh(Dean Student Welfare)
 
-## Special thanks to our Guests of Honour:
+## 🌟 Special thanks to our Guests of Honour:
 - Er.Ravinder garg ~ Chief Engineer, Municipal Corporation,Ludhiana.
 - Er.Rakesh Kumar ~ GNDEC Alumnus(Batch 1991), ADC Ludhiana.
 
 - The event conculded with a Vote of Thanks by Dr. K.S Maan.
 
-# DAY -2 (1 August 2025)
-
-## From exploring values to assessing skills, the day was packed with purpose!
+## 📅 **DAY 2 – 1 August 2025**
+> *"From values to skills, the journey has just begun."*
+This day was all about **exploring values** and **assessing skills**.
 
 English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
 ## Expert Talks:
