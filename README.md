@@ -68,4 +68,4 @@ Her words left a lasting impression, reminding us of the importance of values in
 ---
 # Day 5( August 2025)
 
-On this day there is no lecture of CSE(A). They gatheres outside the TCC Seminar Hall for making of Student Id card then they explore the college campus.
+On this day there is no lecture for CSE(A). We gatheres outside the TCC Seminar Hall for making of Student Id card then we explore the college campus.
