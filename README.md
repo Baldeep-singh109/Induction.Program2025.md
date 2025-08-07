@@ -76,3 +76,87 @@ Her words left a lasting impression, reminding us of the importance of values in
 ## 📅 **DAY 5 – 5 August 2025**
 
 On this day there is no lecture for CSE(A). We gatheres outside the TCC Seminar Hall for making Student Id card then we explore the college campus.
+
+## 📅 **DAY 6 – 6 August 2025**
+> *"Sessions inspire, others… well, test your patience."
+
+### 🔬 9:30 AM – 10:30 AM | Chemistry Lecture  
+**Prof. Karan Bhalla** shared practical insights, making complex concepts easy and interesting.
+
+### 🌟 10:30 AM – 11:30 AM | English Lecture  
+**Prof. Nisha** made the session lively and interactive, encouraging active participation.  
+
+### ☕ 11:30 AM – 12:30 PM | Break & Campus Exploration  
+A relaxing moment to **recharge and explore** the beautiful GNDEC campus.  
+
+### 🎤 12:30 PM – 2:00 PM | Dr. Arvind Dhingra  
+Focused on **entrepreneurship, innovation, and technical skills**.  
+
+### 🧪 2:00 PM – 3:00 PM | Mr. Jasvir Singh Sekhon  
+A deep dive into **STEM education** and problem-solving.  
+
+### 🧠 3:00 PM – 4:00 PM | Dr. Lakhvir Singh Khana  
+Important institutional details — though admittedly, a bit on the boring side. 😅  
+
+---
+
+## 🎯 **Final Thoughts**
+My induction program at **GNDEC Ludhiana** was a rollercoaster of **learning, interaction, inspiration, and occasional boredom**.  
+From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my **B.Tech journey** ahead. 🚀
+
+## 📅 **DAY 7 – 7 August 2025**
+
+The day was filled with informative sessions, academic insights, and motivational interactions.
+
+---
+
+## 🕘 **9:30 AM – 10:30 AM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Amrit Kamra (Incharge - DMC)*  
+
+The day began with an enlightening session by **Dr. Amrit Kamra**, the incharge of the **Departmental Monitoring Committee (DMC)**. The lecture took place in the **college auditorium**.  
+He guided the students about the importance of academic discipline, the role of DMC in maintaining standards, and how it supports students throughout their course duration.
+
+---
+
+## 🕥 **10:30 AM – 11:30 AM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Parminder Singh (Dean - Student Welfare)*  
+
+Following the first session, **Dr. Parminder Singh** took over the stage. He provided a comprehensive overview of various **student welfare facilities** available on campus.  
+He also introduced the students to a wide range of **clubs, societies, and extracurricular activities** that help foster personal growth, leadership, and social engagement during college life.
+
+---
+
+## 🕦 **11:30 AM – 12:30 PM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Randhir Singh*  
+### 🎯 *Topic: "Conduct of Examination"*  
+
+The next lecture was conducted by **Dr. Randhir Singh**, where he explained the complete **examination process** followed at GNDEC.  
+The session covered critical rules, regulations, internal assessments, grading systems, and attendance policies.  
+Students were advised to follow proper conduct and integrity during examinations.
+
+---
+
+## 🕧 **12:30 PM – 1:30 PM**
+### 🍱 *Break Time*  
+
+Students were given a break to relax, have lunch, and refresh themselves before resuming with afternoon sessions.
+
+---
+
+## 🕜 **1:30 PM – 2:30 PM**
+### 📍 *Venue: Mechanical Engineering Seminar Hall*
+###  👥 *Session: BEEE
+
+**Prof. Harminder Kaur** revisited electrical fundamentals, continuing the knowledge through sessions.  
+
+---
+
+## 🕜 ** 2:30 PM - 3:30 PM**
+
+It was an intractive session with our seniors they told us about their first year experience, solve our queries and
+help us for any educational and sports related problems.
+
+---
