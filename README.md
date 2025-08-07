@@ -160,3 +160,7 @@ It was an intractive session with our seniors they told us about their first yea
 help us for any educational and sports related problems.
 
 ---
+
+### ✅ **Conclusion**  
+
+Overall, **Day 7** of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC.
