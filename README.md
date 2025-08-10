@@ -169,6 +169,8 @@ Overall, **Day 7** of the orientation was structured, informative, and beneficia
 
 > *"The day was filled with informative sessions, academic insights, and motivational interactions."
 
+---
+
 ## 🌟 Morning Session
 
 ## 🕘 **9:30 AM – 10:30 AM**
