@@ -173,6 +173,6 @@ Overall, **Day 7** of the orientation was structured, informative, and beneficia
 
 ## 🌟 Morning Session
 
-## 🕘 **9:30 AM – 10:30 AM**
+## 🕘 **9:00 AM – 10:30 AM**
 ### 📍 *Venue: TCC Seminar Hall*  
 ### 👨‍🏫 *Speaker: Mrs. Shaffy Makkar*  
