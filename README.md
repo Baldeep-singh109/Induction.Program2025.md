@@ -165,14 +165,3 @@ help us for any educational and sports related problems.
 
 Overall, **Day 7** of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC.
 
-## 📅 **DAY 8 – 8 August 2025**
-
-> *"The day was filled with informative sessions, academic insights, and motivational interactions."
-
----
-
-## 🌟 Morning Session
-
-## 🕘 **9:00 AM – 10:30 AM**
-### 📍 *Venue: TCC Seminar Hall*  
-### 👨‍🏫 *Speaker: Mrs. Shaffy Makkar*  
